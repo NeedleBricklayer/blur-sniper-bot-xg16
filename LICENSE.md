@@ -1,4 +1,4 @@
-# 
+# Get the ultimate blur sniper bot with updated NFT Mint Bot for blur sniper bot | metadata-parsing & collection-scanning. Featuring metadata-parsing and collection-scanning, it's
 
 
 
